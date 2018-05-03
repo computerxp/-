@@ -1,54 +1,54 @@
 
 <html>
-<meta name="google-site-verification" content="Jc9ar1HH4O-wF64z9yLeXUzEEWftyn7VDFFBLe9ZS9o" />
+<meta name="google-site-verification" content="sV34itna8t-QfflSPm94juLc08KgoSlQ5yIoYVcztZE" />
 <head>
 
- <link rel="icon" type="image/png" href='http://s9.picofile.com/file/8296486750/index.gif' />
+ <link rel="icon" type="image/png" href='http://s8.picofile.com/file/8325309826/%D8%B4%DB%8C%DA%A9_%D8%AC%D8%AF%DB%8C%D8%AF.gif ' />
 <center>
- <a href="http://www.shekchat.ir/" target="_blank" rel="nofollow" ><img src="http://s8.picofile.com/file/8296489876/%D9%88%D8%B1%D9%88%D8%AF_%D8%A8%D9%87_%D8%B4%DB%8C%DA%A9_%DA%86%D8%AA.gif" border="0" alt="سئو و بهینه سازی توسط :جواد مددی شماره تماس 09224319023">  </a>
+ <a href="http://www.shekchat.ir/" target="_blank" rel="nofollow" ><img src="http://s8.picofile.com/file/8296489876/%D9%88%D8%B1%D9%88%D8%AF_%D8%A8%D9%87_%D8%B4%DB%8C%DA%A9_%DA%86%D8%AA.gif" border="0" alt="شیک چت">  </a>
 </center>
 
 <div style="visibility:hidden;display:none">
  
 
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="جوک نویس" rel="nofollow" ><strong>جوک نویس</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="جوک نویس" rel="nofollow" ><strong>جوک نویس</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="شما چت" rel="nofollow" ><strong>شما چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="شما چت" rel="nofollow" ><strong>شما چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="شما چت" rel="nofollow" ><strong>شما چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="شما چت" rel="nofollow" ><strong>شما چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="ایناز چت" rel="nofollow" ><strong>ایناز چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="ایناز چت" rel="nofollow" ><strong>ایناز چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="شیکچت" rel="nofollow" ><strong>شیک</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="شیکچت" rel="nofollow" ><strong>شیک</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="جوک نویس" rel="nofollow" ><strong>جوک نویس</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="جوک نویس" rel="nofollow" ><strong>جوک نویس</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="شما چت" rel="nofollow" ><strong>شما چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="شما چت" rel="nofollow" ><strong>شما چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="شما چت" rel="nofollow" ><strong>شما چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="شما چت" rel="nofollow" ><strong>شما چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="ایناز چت" rel="nofollow" ><strong>ایناز چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="ایناز چت" rel="nofollow" ><strong>ایناز چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="شیکچت" rel="nofollow" ><strong>شیک</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="شیکچت" rel="nofollow" ><strong>شیک</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="سنتر چت" rel="nofollow" ><strong>سنتر چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="سنتر چت" rel="nofollow" ><strong>سنتر چت</strong></a>
 
 <meta http-equiv="Content-Type" content="text/html; charset=utf-8">
 <META NAME="description" CONTENT="<-BlogAndPostTitle-> - <-BlogDescription->">
@@ -259,42 +259,42 @@ function OpenLD()
 	<div id="content" class="site-content">
 
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="جوک نویس" rel="nofollow" ><strong>جوک نویس</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="جوک نویس" rel="nofollow" ><strong>جوک نویس</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="شما چت" rel="nofollow" ><strong>شما چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="شما چت" rel="nofollow" ><strong>شما چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="شما چت" rel="nofollow" ><strong>شما چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="شما چت" rel="nofollow" ><strong>شما چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="دیانا چت" rel="nofollow" ><strong>دیانا چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="ایناز چت" rel="nofollow" ><strong>ایناز چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="ایناز چت" rel="nofollow" ><strong>ایناز چت</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="شیکچت" rel="nofollow" ><strong>شیک</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="شیکچت" rel="nofollow" ><strong>شیک</strong></a>
 
-<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.shekchat.ir/" target="_blank" title="سنتر چت" rel="nofollow" ><strong>سنتر چت</strong></a>
+<a style="display: block; padding: 5px; text-shadow: 1px 1px #FFFFFF; -moz-border-radius: 5px; border-radius: 5px; -webkit-border-radius: 5px; margin-bottom: 5px; background: #C3F3FC;border: 1px solid #75DFEE;"  href="http://www.sheekchat.ir/" target="_blank" title="سنتر چت" rel="nofollow" ><strong>سنتر چت</strong></a>
 
-<!-------------SEO BY : JAVAD MADADI---------------->
-<a href="http://www.shekchat.ir" rel="nofollow" ><h3>چتروم استیکر چت</h3></a>
-<a href="http://www.shekchat.ir" rel="nofollow" ><h3>چت استیکر چت</h3></a>
-<a href="http://www.shekchat.ir" rel="nofollow" ><h3>گپ استیکر چت</h3></a>
-<a href="http://www.shekchat.ir" rel="nofollow" ><h3>گفتگو استیکر چت</h3></a>
-<a href="http://www.shekchat.ir" rel="nofollow" ><h4>چتروم شلوغ استیکر چت</h4></a>
-<a href="http://www.shekchat.ir" rel="nofollow" ><h5>چت روم استیکر</h5></a>
-<a href="http://www.shekchat.ir" rel="nofollow" ><h6>بهترین چت روم استیکر چت</h6></a>
-<!-------------SEO BY : JAVAD MADADI---------------->
-<a href="http://www.shekchat.ir" rel="tag" rel="nofollow" >چتروم دنیز چت</a>
-<a href="http://www.shekchat.ir" rel="tag" rel="nofollow" >چت  دنیز</a>
-<a href="http://www.shekchat.ir" rel="tag" rel="nofollow" >چت روم</a>
-<a href="http://www.shekchat.ir" rel="tag" rel="nofollow" >چتروم شلوغ</a>
-<a href="http://www.shekchat.ir" rel="tag" rel="nofollow" >اتاق گپ و گفتگو</a>
-<a href="http://www.shekchat.ir" rel="tag" rel="nofollow" >گپ</a>
-<a href="http://www.shekchat.ir" rel="tag" rel="nofollow" >گپ شلوغ</a>
+<!-------------SEO BY : sheekchat---------------->
+<a href="http://www.sheekchat.ir" rel="nofollow" ><h3>چتروم استیکر چت</h3></a>
+<a href="http://www.sheekchat.ir" rel="nofollow" ><h3>چت استیکر چت</h3></a>
+<a href="http://www.sheekchat.ir" rel="nofollow" ><h3>گپ استیکر چت</h3></a>
+<a href="http://www.sheekchat.ir" rel="nofollow" ><h3>گفتگو استیکر چت</h3></a>
+<a href="http://www.sheekchat.ir" rel="nofollow" ><h4>چتروم شلوغ استیکر چت</h4></a>
+<a href="http://www.sheekchat.ir" rel="nofollow" ><h5>چت روم استیکر</h5></a>
+<a href="http://www.sheekchat.ir" rel="nofollow" ><h6>بهترین چت روم استیکر چت</h6></a>
+<!-------------SEO BY : sheekchat---------------->
+<a href="http://www.sheekchat.ir" rel="tag" rel="nofollow" >چتروم دنیز چت</a>
+<a href="http://www.sheekchat.ir" rel="tag" rel="nofollow" >چت  دنیز</a>
+<a href="http://www.sheekchat.ir" rel="tag" rel="nofollow" >چت روم</a>
+<a href="http://www.sheekchat.ir" rel="tag" rel="nofollow" >چتروم شلوغ</a>
+<a href="http://www.sheekchat.ir" rel="tag" rel="nofollow" >اتاق گپ و گفتگو</a>
+<a href="http://www.sheekchat.ir" rel="tag" rel="nofollow" >گپ</a>
+<a href="http://www.sheekchat.ir" rel="tag" rel="nofollow" >گپ شلوغ</a>
 <!-- END: Seo chat -->
 </div></div>
 </body>
