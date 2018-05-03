@@ -3,7 +3,7 @@
 <meta name="google-site-verification" content="sV34itna8t-QfflSPm94juLc08KgoSlQ5yIoYVcztZE" />
 <head>
 
- <link rel="icon" type="image/png" href='http://s8.picofile.com/file/8325309826/%D8%B4%DB%8C%DA%A9_%D8%AC%D8%AF%DB%8C%D8%AF.gif ' />
+ <link rel="icon" type="image/png" href='http://s9.picofile.com/file/8325310392/5.jpg ' />
 <center>
  <a href="http://www.shekchat.ir/" target="_blank" rel="nofollow" ><img src="http://s8.picofile.com/file/8296489876/%D9%88%D8%B1%D9%88%D8%AF_%D8%A8%D9%87_%D8%B4%DB%8C%DA%A9_%DA%86%D8%AA.gif" border="0" alt="شیک چت">  </a>
 </center>
